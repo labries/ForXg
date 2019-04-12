@@ -1,3 +1,3 @@
-This pages just for My XG.
+This is  personal files for own.
 
-remember i love you !
+For my Xg.
